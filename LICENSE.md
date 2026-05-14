@@ -1,4 +1,4 @@
-# 
+# Inkscape for macOS top Plugin - batch processing and collaboration offers the most advanced Inkscape for macOS plugin, with batch processing and collaboration. Ideal for
 
 
 
